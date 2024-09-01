@@ -1,0 +1,13 @@
+I tried to learn watercolor. it hasent gone very well so far but here are some of the ones but here is everything ive made:
+![IMG_4061](https://github.com/user-attachments/assets/d93ba7fc-8eba-4d0b-b24e-2a1ad419a4ed)
+![IMG_4065](https://github.com/user-attachments/assets/c3f9c9bc-e100-4687-a4c6-f4a255008442)
+![IMG_4066](https://github.com/user-attachments/assets/a062e9b2-826c-41a4-97b2-4121cdaa79a4)
+![IMG_4067](https://github.com/user-attachments/assets/846d6031-1c90-4b37-84d7-467f8becfbc0)
+![IMG_3974](https://github.com/user-attachments/assets/d5220099-7367-4fb5-84bc-fdcdbd69d5ff)
+![IMG_4056](https://github.com/user-attachments/assets/8d4d23f5-6831-46b0-8cf3-5036dcd5f936)
+![IMG_4057](https://github.com/user-attachments/assets/8e61d601-f68f-4919-8aea-e6eacf30b260)
+![IMG_4058](https://github.com/user-attachments/assets/b884d56a-564c-47b2-b88a-02f344cb5dc5)
+![IMG_4059](https://github.com/user-attachments/assets/f20100db-3885-4002-81c9-ca51b747dc32)
+![IMG_4060](https://github.com/user-attachments/assets/de570c64-5b17-45e7-9667-3aaa2592c99d)
+![IMG_4069](https://github.com/user-attachments/assets/0023f06b-f9a7-4dff-8ad2-ebc575ad8e61)
+![IMG_4068](https://github.com/user-attachments/assets/2197463c-eca1-4bf5-a41e-3eb3b2e598fb)
